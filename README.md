@@ -1,1 +1,0 @@
-# durga2-IPMP
